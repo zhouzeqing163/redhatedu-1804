@@ -1,1 +1,0 @@
-# redhatedu-1804
